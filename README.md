@@ -1,3 +1,1 @@
-# 1-A-Emilio
-
-Meu noome é ....
+Se for pra angola, vera angolanos :)
